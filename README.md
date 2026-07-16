@@ -2,7 +2,7 @@
 
 ### Industrial Talk by Pharma Leaders & Hands-on Workshop (2019)
 
-![Workshop Certificate](Industrial_Workshop_UV_HPLC_GCMS_RKU_2019.jpg)
+![Workshop Certificate](experience certificate GC-MS, HPLC, UV.jpg)
 
 # 🏆 Chemistry Certificates
 
